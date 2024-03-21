@@ -1,8 +1,8 @@
 ### Hi there 👋
 
+I love to take one step at a time, 'cause that's all I can do now..
+But I will do follow this path not to succeed but to learn! 
 
-**Englishson0909/Englishson0909** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-#Here are some ideas to get you started:
 #😄 I love drama analysis, play, English liteature. 
 
